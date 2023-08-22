@@ -8,9 +8,9 @@ My UGM account : [Elok](https://elok.ugm.ac.id/login/index.php)
 ___
 Here's my full introduction!   
 
-Nama: Edra Elricadewi  
-NIM: 22/497226/SV/21107  
-Kelas: PGW A  
-Avatar:     
+Nama : Edra Elricadewi  
+NIM : 22/497226/SV/21107  
+Kelas : PGW A  
+Avatar :     
 ![Avatar](image-1.png)  
 I love Polar Bear! Hehe
