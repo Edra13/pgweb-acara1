@@ -7,7 +7,7 @@ I'm majoring in GIS, Vocational School, Gadjah Mada University.
 ___
 ### Here's my full introduction!   
 
-##### Name : Edra Elricadewi  
+Name : Edra Elricadewi  
 NIM : 22/497226/SV/21107  
 Class : PGW A  
 Avatar :     
